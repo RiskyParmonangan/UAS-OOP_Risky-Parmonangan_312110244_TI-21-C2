@@ -1,1 +1,4 @@
 # UAS-OOP_Risky-Parmonangan_312110244_TI-21-C2
+
+LINK VIDEO TUTORIAL: 
+https://youtu.be/kWYEUYZSQD8
